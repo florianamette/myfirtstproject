@@ -1,4 +1,5 @@
 dkldkwldkwldkiwldk
+# code rajouté par jonathan :)
 
 dlkdl;kwqd
 qwpd
@@ -12,4 +13,3 @@ reri
 erere
 
 ere
-tetete
